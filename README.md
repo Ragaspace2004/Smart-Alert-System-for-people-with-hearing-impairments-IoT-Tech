@@ -1,0 +1,1 @@
+# Smart-Alert-System-for-people-with-hearing-impairments-IoT-Tech
